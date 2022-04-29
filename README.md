@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Jacksontrooper
+- 👀 I’m interested in Games and Game making on roblox studio
+- 🌱 I’m currently learning Building On roblox Studio
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me Email Me ON- Gmail jackeeeeeeeeeHjii@gmail.com
